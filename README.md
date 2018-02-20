@@ -9,7 +9,7 @@ In April 2010, my brother and I opened a bar called Brewski's Tavern in Greensbo
 Below is one of the final posts from facebook.com/brewskis:
 
 
-2018-04-02:
+2013-04-02:
 
 *****************************
 For those of you who are sad about this news, I just want to say 'don't be'. Brewski's is not dead, it's just relocating. Brewski's will return bigger (or smaller) and better than ever. Yes, there will be some downtime, but I personally am looking at that as a well earned vacation in which I will marry the love of my life.
