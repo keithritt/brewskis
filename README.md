@@ -30,3 +30,6 @@ Over 5 years after that post, there is still no "Brewski's II", but we still own
 
 Logo:
 The Brewskis logo is copyright free. Anyone may use the logo for personal or business use.
+
+Discord:
+Join our discord app: https://discord.gg/NSEMCbh
