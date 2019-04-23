@@ -25,11 +25,11 @@ Thank everyone for an amazing last three years, and I look forward to seeing you
 *****************************
 
 
-Over 5 years after that post, there is still no "Brewski's II", but we still own brewskistavern.com. As a web developer, I don't see why we need a physical location or liquor license to enjoy an adult beverage with a friend. We can utilize video chat technology to have a real beer in a virtual bar.
+Over 5 years after that post, there is still no "Brewski's II", but we still own brewskistavern.com. As a web developer, I don't see why we need a physical location or liquor license to enjoy an adult beverage with a friend. We can utilize current the latest communication technology to have a real beer in a virtual bar.
 
 
 Logo:
-The Brewskis logo is copyright free. Anyone may use the logo for personal or business use.
+The Brewski's logo is copyright free. Anyone may use the logo for personal or business use.
 
 Links:
 [https://discord.gg/NSEMCbh](Join our discord app)
